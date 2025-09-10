@@ -1,1 +1,0 @@
-# sinagho.github.io
